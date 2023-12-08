@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anujrathee7
-- 👀 I’m interested in 
+- 👀 I’m interested in programming
 - 🌱 I’m currently studying at Lut university Lahti
 - 📫 How to reach me: anujrathee48@gmail.com
 
